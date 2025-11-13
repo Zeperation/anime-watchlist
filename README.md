@@ -1,2 +1,2 @@
-# top 10 best anime
-these animes are a must watch
+# TOP 10 BEST ANIMES OF ALL TIME!
+YOU ARE ONLY A TRUE FAN IF YOU HAVE WATCHED AT LEAST 5 OF THESE ANIME
